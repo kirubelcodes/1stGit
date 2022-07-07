@@ -12,4 +12,4 @@ Collaboration attempt
 
 try pulling these changes to your computer
 
-skldjflksdjfklasjdflkajsdf
+Working On different Branches and strategies

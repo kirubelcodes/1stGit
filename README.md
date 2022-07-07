@@ -10,4 +10,4 @@ that I'm sharing you
 
 Collaboration attempt
 
-ተበዳ 
+try pulling these changes to your computer

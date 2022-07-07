@@ -11,7 +11,5 @@ that I'm sharing you
 Collaboration attempt
 
 try pulling these changes to your computer
-try pulling these changes to your computer
-try pulling these changes to your computer
-try pulling these changes to your computer
+
 skldjflksdjfklasjdflkajsdf
